@@ -9,5 +9,5 @@ I was asked to release it, so please take it as it is, no expectations. Anyone c
 
 I will be happy to see what people do so you can let me know here:
 
-guido.tattoni@gmail.com
+message me on ghithub
 instagram @tattoguidotti
